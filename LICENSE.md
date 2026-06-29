@@ -1,4 +1,4 @@
-
+hypershot updated Script is the best hypershot Script, featuring auto-upgrade and fly. Safe and powerful for all your needs.
 
 
 
